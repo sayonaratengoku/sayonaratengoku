@@ -4,7 +4,7 @@
 im the tsukasa ever (no clickbait)
 
 
-.chuukasa on dc 
+phanmazemonster on dc 
 
 @vebuos 's star <3
 
